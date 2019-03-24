@@ -1,2 +1,2 @@
 # angelicaknudsen.github.io
-A confusing Big Bang website, enjoy yourself, and enjoy life.
+A confusing website about the Big Bang Theory. Enjoy yourself, and enjoy life.
